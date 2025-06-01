@@ -1,1 +1,0 @@
-# Arkadiy205.github.io
